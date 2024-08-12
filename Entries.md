@@ -1,437 +1,440 @@
-9 Aug 2024
+### 12 Aug 2024
+Inori: I walked the sunset home tonight. A trail of memories fluttered like silhouettes. Wandering the Seine banks at midnight to a lonesome jazz saxophone. Drenching my feet in a cold Colorado mountain spring in summer. Tasting the Pacific Ocean tumbling surf and listening to the Grateful Dead. The last Sunday drivers head home tonight.  I stand at the light recalling days in Copenhagen waltzing arm in arm with three of the city’s beautiful daughters. Seeing the fjords of Norway. Laughing at the street clowns in Paris. Swapping songs and stories with ones I’ll never see again. The clouds overhead are embarrassed. I cannot transcribe the thousands of moments. Yet I carry them quietly each day. The jewels of the heart. The wealth that can never be stolen. The reason I am here.
+
+### 9 Aug 2024
 Inori: The soul is always longing. In darkness or in light. The colors bleed into our mystery. Where is the destination? Where is our home? The traffic murmurs down the avenue. Past the thirst for Cokes , snacks, and gasoline. How can I hear the goddess speak amid the computers, smart phones, and cash registers? When my work is done, will this romance-weary moon light my path? The summer heat clings to my shirt. The crickets and fireflies perform their staccato themes. No matter how many friends and loves one finds, the path of the soul is always solitary. I listen for the call.
 
-24 May 2020
+### 24 May 2020
 Inori: The night is heavy with the moisture of living.The blessings of the tangible. We walk through curtains of filigreed light. How far to reach the other side? You carry your logic as a compass. I feel my way with the sound of a flute. Each moment is a no man’s land. The scent of dark earth and secrets rise in mist around the street light. You have quoted both the prophets and the heretics. Do we bury our gold or invest our wealth? A caravan is approaching from the East. It is the hour before the birdsongs begin. A smudge of light on the horizon . And once again we believe in the Earth’s turning toward the light.
 
-6 Sep 2019
+### 6 Sep 2019
 Inori: We drink the last drafts of summer air. The scent of ragged blossoms mixed with dried earth. The distant sound of a radio . The rooftop etched in greys. I rode my bicycle past the sun. Your  song lead me to the vagabond creek. Strands of glistening webs are our flags. The smallest of hearts can enfold this sky. Someone shouts into a cell phone. Waves of heat lift the clouds . The yellowing grass submits it’s prayer . Where does this path lead? Why are the skies grown a darker shade? The flavor of wild sage dyes the meadow. I’m finally heading homeward.
 
-3 Jul 2019
+### 3 Jul 2019
 Inori: All is mixtures of light and dark. The murderous dawn slits the throat of dreams. Cloud fragments gather to obscure the infinite blue. Leaves plucked early make the sweetest tea. Our laughter is a mask. A bond too tight destroys the beloved. And as I throw my critique outward , I am only running from myself.
 
-23 Jan 2019
+### 23 Jan 2019
 Inori: An alliteration of days mark our footsteps. Cavernous sleep conjures a death wish. Here the wolf comes howling again. Our words condemned to a life sentence. Rain trickles down the black tree branch. A red string dangled from the grey clouds. Do the children still cling to your vision? How often have we created men from snowflakes? Ice forms lenticular crevices along the beckoning road. Mist is our mistress. The crunch of each footstep fades into white. I fold my hands in prayer around a styrofoam cup and drink my coffee black. Across the suburban roofs the wolf calls to it’s cub.
 
-14 Dec 2018
+### 14 Dec 2018
 Inori: The storm lifts our possessions out of reach. The architecture of cloud reigns supreme. I have forgotten most of what is past. The river never stops . In dreams I never hear my name. The colors mingle like threads of light. The path to the goal is always marked with obstacles. Soft fogs of snow crystals dance in the headlights at night. How much of water is mere reflection? We think we know ourselves until we are actually introduced. A bird flies from the barren branch. Adrift, the words of the writers and poets tumble as leaves. The sun pulls a purple and orange mantle across the rooftops. I am just a child; making the sky, trees, and houses all swirl, as I drag my stick through the puddles.
 
-8 Mar 2018
+### 8 Mar 2018
 Inori: The framework was forgotten as we climbed into the cavernous dream. Vaulted ceilings ashen grey and textured like stucco. The windowless daylight played upon the archways. A pathway rose from here to the city streets and the modern arms reaching skyward. A strange being in a suit walked quickly past , morphing into a policewoman, constantly glancing at us over her shoulder. In the corner of the largest room stood a tall bird-man with a half-white half-black mask face bearing a calm expression and a gentle smile.Large head feathers protruded from the left side of his head. His body an amalgam of reptilian scales and soft feathers,moved slowly,mechanically on naked clawed feet. When he turned his head sideways,his facial outline appeared as that of a bird, His eyes watched us with calm and curiosity. Music echoed throughout the caverns and melded with the hum of street traffic and noises. Somewhere within here is where I reside,the true self.Somewhere between the subterranean and the shining spires.I will return again and take more notes.
 
-20 Feb 2018
+### 20 Feb 2018
 Inori: The darkest hour before the dream images flee. I tie the red string in musubi knot. Time and Distance breed demons of despair when silence is the only communication. Raindrops clamor upon the midnight. Each moment is a step forward on the circle.Thoughts, like raven’s wings dart and flutter. Here is the heartbeat of memories chastened by cruelty. Which gods will choose to plot our path? Wisdom confers a massive ignorance. This candle, though burning low, still has light to give. All light is born in darkness. All music arises from silence. Just send me word from where you are.
 
-12 Jan 2018
+### 12 Jan 2018
 Inori: You tarnished my sadness with invitations. The knell of a morning sun ringing through a mountain mist. Your mirrored dreams follow me. Birds take flight over leafless branches. Our shadows sing nursery rhymes. My old refuge shattered by the touch of your inquiries. There is a fear mixed into every happiness. In the chaos of memory we held hands. Can you recall the the intervals of the shining geometry? By your grace I learned to listen and to share. Delusions can be created by one. But a world takes at least two. Ocean waves repeat but never speak the same. The tide rolls out now as I search the horizon awaiting it's return. I find shells and polished rocks glistening in the turquoise evenings. I watch the invisible hands drawing down the shade.The goddess carefully placing the moon and the stars in our sight for remembrance.
 
-16 Jul 2017
+### 16 Jul 2017
 Inori: The spasms of time have touched us. I ride on the invisible flow of air.From the tiniest bee we have learned the joy of hovering above ground. There is a dance that leads to the honey. Particles form waves. Waves carry our voices. Voices translate our emotions. The beat of hearts lays the foundation. It is the things we cannot see that are the most meaningful. The greatest achievements will never be recognized by those who rely solely upon their senses.
 
-27 Apr 2017
+### 27 Apr 2017
 Inori: Water becomes wood. I have found the color of the meadow at sunset. The scratch-throated song of the blackbird silhouetted by the wind, There is only one promise given. The heart beats. Wood becomes water. I have gathered the tears from sorrow's fountain. A ribbon of clouds bind the horizon. Only one gift remains unwrapped. That which cannot be seen or measured carries the most weight to the human heart. I will close my book.....and listen to the wood.....and listen to the water.
 
-3 Mar 2017
+### 3 Mar 2017
 Inori: Fluids maintain our balance. From dusk to sunrise the new leaves bring folded praise. The red string winds it's way amid furious canyons of wind and cloud.I have memorized your four questions. Your colors have imbued me with courage. I watch the invertebrate motion of personas. We place masks upon the others so that we may love and fear more safely.Dreams weave a blanket for our past to snuggle under. Let the games always be reset. My Z-Power is my brokenness. Mimikyu's shrill call leads me forward. The bonds of friendship surpass the teaming skulls.
 
-12 Feb 2017
+### 12 Feb 2017
 Inori: Imagination sculpts the world. From the chaos of fire and rock we grasp for patterns. Poor shadows strut the circumference of knowing. Gods and goddesses thunder and whisper across fields. We divide the days with mechanical gears and digital pendulums. Counting every star we have yet to learn to tie our own shoelaces. There is an obstacle made transparent by our perceptions. Just as the bird flies into the glass window, so are we blinded to our own reasoning.We can only walk along the shoreline and gather pebbles.
 
-10 Dec 2016
+### 10 Dec 2016
 Inori: The symphonic pulse swirls clouds into marbled questions. The baffled sun melds emotions. Life is imprecise like the finger paintings of grade school . Each feeling spreads in irresolute borders of madness and sanity. My daydreams are measured in  light years. Every passing moment passes again and again. the system would like to use your current position. YES/NO. Without boundaries,the earth rises to meet the sky.All intelligence is artificial. All artifice is intelligent. If you can paint the sounds inside your vision, you just might get a passing grade.For here is the mystery that answers it's own question.Watching the sky return it's colors to the horizon.
 
-4 Dec 2016
+### 4 Dec 2016
 Inori:The mind bears a fantastic fruit. From the swaying boughs of memory drop the soft skinned promises. Indulgent as only Time can be while the seasons blaze past in furious colors. There was a seed that floated upon the invisible thoughts. We transcribed this as creation. The addition of geometric roots ,spiraling with tendrils of desire. Here the first drops of sin were tasted. There the first book of the nerves became etched.The sky stretched it's pastel musings like a drum head upon the mirrored lake. We danced and sang until the Earth turned round again.We have told our story in song. We have bled and risen again.We have plucked these ripening gifts. And what shall we do, now that we have become gods?
 
-27 Nov 2016
+### 27 Nov 2016
 Inori: The echo that the morning forgot tumbles down the highway.Memories ,like plastic bags, morph and scuttle among tangled grasses.The song I sing has no key. I tune the colors to the wind and the rain. We waited for the moon's balding appearance as the evening birds waltzed in pairs. There are flowers that bloom, even in times of drought. The sands shift noiselessly.A discarded newspaper trumpets headlines of hate. You conducted the symphony of sunset's haze. Wild things are beckoned on the ocean breeze.However brief the time we have;there is much to love in this world.
 
-27 Oct 2016
+### 27 Oct 2016
 Inori: The journey is shorter now. Rain tap dances along the edge. A crow flew away, leaving it's shadow on the fallen leaves. I turn my collar up against the chill. The flavor of a summer's day is washed down with the fermented memories. I've spent three years building the bridge. The song of a sunset treads lightly past.  We have opened the book of faces. There are no flowers to bestow upon these lingering thoughts. A hand touches mine. We tread toward the railed footpath. The bridge is nearly finished. It will hold my weight. Stay here. I'll be right back. I'm dying to see what's on the other side.
 
-8 Oct 2016
+### 8 Oct 2016
 Inori: I walked with you among the miracles. The earth was moving although few could sense it. Dry wings shuttled the taste of the first wind. This rock journeyed billions of years to become our resting spot.Silence feeds our words. Distance is our companion.The handiwork of confusion weaves a ladder upon which you traverse chasms of hope. I practice upon the strings of my unvarnished heritage. The image of a human appears from the greenery. Small animals make their homes in the house of thought. All that is man -made had become natural.  Business men alone survive on artificial hearts. I am dyed now in your colors. The doors have been opened to this path.Here is the key to the sky. The two of us are not in this picture. No footprints left in the dust.Yet the tree and the rock remember.
 
-29 Sep 2016
+### 29 Sep 2016
 Inori: The myriad possibilities converge across my vision. The universe is our backyard. Here the taste of clouds blend with the fractal light of prisms. Have you held the hands of Time? Did your progeny plant roses among the stars? These are the organic roots of all my ambitions. The gnarled philosophies trip us as we walk. An ancient sign eroded by invisible wind.The call of the wildflowers sings to the scent of birds. There is no direction.There is no answer to the unknown question.The path creates itself.
 
-5 Sep 2016
+### 5 Sep 2016
 Inori: The calligraphy of thought inscribes it's diary upon this moment. The forested ideas conjured by our waking footfalls. The spirits of the future visit us in subtle gestures.Here is where my home is,drifting from hand to heartbeat. There has only ever been one destination. All the repetitions have spoken the colors of our dream. The truest words are those which cannot be written. And as the shadow of clouds caress a hillside, so do our days reveal the ephemeral. Until Time will stop.
 
-31 Aug 2016
+### 31 Aug 2016
 Inori: Imagination is key. The darkness fumbles before the light. The birds sing at evening night. What measures the swirling essence of the seed? Science falters before the altars of the spark. In the park the wind gathers it's hem.We have seen them, in their myriad costumes.Who presumes to lead the way? The day unfolds into it's dream of night. The light sets it's children free. Imagination is key.
 
-27 Aug 2016
+### 27 Aug 2016
 Inori: Unlimited are the spiraling questions knocking upon unlocked reveries. The strings vibrate multi-colored peripherals. I shall cast my vote among the 10,000 possibilities of the Dragon's tongue. The auspicious Shiva whirls among the Vocaloid parameters. I have tied the red string around my finger. Two ravens were perched upon  dead limbs in the rain. The semi-trailer moans,tipped sideways in the grass embankment. Can you see the facts within the cloud forms? There is a Book of Faces collecting the myriad habits for the Future's daughter. The sweltering fires blaze across the moon. Time twists and shouts to an African parentage.Here,at the bottom of the glass,is where the real thirst begins.
 
-3 Aug 2016
+### 3 Aug 2016
 Inori: The word is seeded with a slumbering wind. From the electric cicada song my politics arises. An untied shoelace flounders with each step. The bleached clouds circumvent your ideology. We can chase the argument among the cornfield's brazen laughter. The vote I cast skips across the pond before it sinks.Van Gogh sits in the corner, half-listening. I give my apologies to the synaptic jury. Here and there run the newspaper jugglers. The facts, the stats, and the bottom line walked into a bar. The moon rises over fields and rooftops. The goddess says "The Truth escapes me." I turn on the music and snuggle into the headphones. To perfect his playing style, Miles would spit seeds everywhere he went.
 
-23 May 2016
+### 23 May 2016
 Inori: The flush of the toilet.The mourning of the mirror. Cussing is a form of running away. Birds still sing regardless of my mood. "Hello darkness my old friend" I remember long rambling drives through the rural back roads conversing about literature. Without you this could not be written. There is no apology for argument.Clouds laugh above me in a blue charade. Being born is a death sentence. The time between runs in paragraphs. You never showed me until now where the punctuation goes. I have miles to go before I pee. Doesn't that frost yer balls. I opened the car door and got out.Under the summer night sky a relief of cornfields adorned by the paparazzi of fireflies. In true darkness there is no light. That is what living is for.
 
-13 Feb 2016
+### 13 Feb 2016
 Inori: When we stop speaking is when we can hear best. The patterns of silence have settled across the indigo promise. From the distance I admire the tiny voices of the snow. I take sustenance in the cold sunlight. Down the chimney echoes the north wind's chorus. The world is a crystal web of fragile connections. The clouds text the dawn with gold and orange shadows. Two paintings watch over me as I type my meaningless reasons. Here is the sum of all that I know. I am born. I will die. I am alive now. And I love you who read this. All the rest is but the muttering of a fool to keep the fearful shadows away.
 
-21 Jan 2016
+### 21 Jan 2016
 Inori:Beneath the frozen stillness our dreams gestate. Step cautiously across. No wind can carry the sunlight to this reddened cheek. Time takes time. Small bubbles form where fish froliced. Tree limbs creek and moan. This is necessary, this waiting. Footprints of tiny animals are the signature that life leaves. The hawk's shadow pours noiselessly over the snow. Here I am. Crunch of ice beneath a boot. Thoughts turn to mist as we speak. Farther ahead, the river mumurs green musings. My hand slips out of the glove. I place it palm down into the drift.
 
-30 Dec 2015
+### 30 Dec 2015
 Inori: Words born from the winds. The frosted morning sunlight opens the veils. There is a connection now between the gut and the cry of the birdsong. I move my arm to reach. No longer does the dark shadow hide anything. Clouds are the paragraphs that weave the sky story. My past is owned and forgotten. Are all things motivated by loneliness and death? There is a tattoo on the heart. A blanket of tides follows the sleepy moon. When I sleep you rise. Your singing echoes through the halls of my dream. From illuminated rooftops, awash in pink and pastel blue, my whisper ascends like a feathered white seed. This is no season for the cricket song. It is the silence that speaks the strongest. It is the sleeper that listens best.
 
-29 Nov 2015
+### 29 Nov 2015
 Inori:The mind searches for meaning. The puzzles are played out in call and response. A scent of mint leaves a trail through the arbor of light. From birth to death to rebirth flashes a beacon of desires. This maelstrom of my own awakening shall be my shawl against the wind of questions. A friend has lent their strings of woven ideas. The natural world dissolves into the human-made. I comprehend but fail at understanding. A floating piece of wood is cast ashore. Letters in the sand remain no more. I gather shells and listen for the ocean's fading roar.
 
-23 Nov 2015
+### 23 Nov 2015
 Inori: We are connected by dreams. The scripture of synapses dredges demons and winged angels. Copy, paste, and send the shadow of the handprint. Two hands form a bird illusion. The goddess appears and can be viewed from all sides. The thin red strand of hope spirals down my finger. A helix of sparkling light spins in our peripheral vision. How often will the rising and setting occur and still be poetry? What separates the cliche from the deep meaning? You slumber among the imagery of pain and bliss. In silence we are bound. November's ice left it's frozen grains upon my sill. Once again I wait at the station for your arrival across the miles. I study the entrails of the mathematical corpse. The future is determined by the random flickering of the light above my maps.
 
-20 Nov 2015
+### 20 Nov 2015
 Inori: The wind that shapes the clouded forms. Behind the eye of the workman's hand the sun slips like a coin trick. There is a diamond deep within me. You wrote the prism of your thoughts on the underbelly of your will. Trees have shed their leafy tears to the coming ice. A raven unlocks the rhymes. A pagan song rises across the urban shadow. I practice the scales from C to zero. A gem is only that which is polished. We wandered among the day's beckoning signs. You are the protaganist of your own movie. I improvise my dialogue. We are what we eat. My plate is full.
 
-8 Nov 2015
+### 8 Nov 2015
 Inori: From the center all things emerge. The sun's rays fan the sky. This is my movie. The camera pans across the trees extended arms. A heart beat sends the message to you. Distances are measured by memory. The goddess points skyward ,"On those desolate planets you will find Hell. Not here on this blue orb. Nor underground where our roots grow deep." The journey of the falling leaf is our biography. The wolf sings to the wind and the wind is destiny. Let's put another log on the fire. We shall stay up late. We will write our stories.
 
-31 Oct 2015
+### 31 Oct 2015
 Inori:Here among the clouds. You can't see me unless you look upward. I wander where there is no definition. A beautiful haze envelops. Lightning, thunder,sunshine,moonlight,rain,fog,snow,wind and rainbows....all originate outward from here. This is the source. I linger at the birthplace of thoughts. A song swirls colors across the canvas. A dusting of butterfly wings carries the scent of connection. Could you write all this down for me? I'm not sure when I'm coming back. Keep these notes bound close.
 
-11 Oct 2015
+### 11 Oct 2015
 Inori: The flower knows the algorithms of love. The moonlight rituals pull the tides of attraction. I have danced the circle over and over. In the hours of eternity we live a heartbeat's breadth. Errors are mirrored in tears. The trees of the forest each grow their own twisted way. From the loam of seasons the new growth pushes. I leave a breadcrumb trail of letters along the winding path. The wise wolf doesn't howl at the moon but at the longing for the sun's setting. We remember that which we had obscured. The geometry of our destined circle forms a star. Though the flower sheds it's petals; the scent lingers.
 
-14 Sep 2015
+### 14 Sep 2015
 Inori: Our dreams rise to surface.Desire grows lungs and legs. The sirens beckoned to the ancient sailors. There is an allure to the primal waters. Sunlight walks upon the surface. This voyage may take a year. Circe's spell cast round the wild things make men into swine. My gills gasp for the sweet air. The evolution of childhood's terror pulls the waves beneath the moonlight. The roar of currents break the chant of Dawn's potions.Large rocks become worn over eons. We began sketching diaries upon caves. Voices murmured with each rise and fall of the wave's foam. With lungs came language. A cry of the seabird. Our dreams recede back to the depths. I am cast upon the shore. Seaweed entangled in my hair. And sand in my shoes.
 
-16 Aug 2015
+### 16 Aug 2015
 Inori: In the echo of forgotten sunset the music splinters in memoriam to the curtain.A certain death appeals to some. The quarter tones slide across the bronzed cloud edging.The taste of dew upon my lips and the lyrics from a crooked smile. Ahab would be proud to sail the skies that wail one plaintive chorus. I hold out my hands to you. The goddess exchanges the ritualistic earing for your compass. We have marked our trail with breadcrumbs and bones. The feast began long before our birth. Was Paradise ever so hard as this? You place your phone call.The shadows cast purple fingers across the grass.The doctor will see you now.
 
-7 Aug 2015
+### 7 Aug 2015
 Inori: Beauty lies under the radar.The gentle whisper of a snowflake. The mumbling clouds. The cracks in the old cup. The perfume of gasoline fumes in the cold air. The kiss of the misty rain upon the cheeks. The cool taste of moonlight. The sound of the sun going to sleep.The laughter of an open field. This is where I live. This is my home. Devoid of bank statements. Neither calendar or clock. Success and falure do not intrude though I have seen their footprints. No need for laws since all are in agreement.Here where dreams are not executed at dawn. I wander, clothed in robes of sunlight.The tapestry of town and country undulates to a hidden music. I observe the wake left by the frog's plop into the pond. Upon the note of a reedy flute the architecture of our house unwinds. As solid as rainbows.
 
-27 Jun 2015
+### 27 Jun 2015
 Inori: That which bends,endures. The same light shines on everything. The mocking bird sings the songs of all but it's own kind. A door is opened.  Raindrops form bubbles in the puddled parking lot. We reach for the goods on the upper shelf.I was reading a book about World War Two. A moth clings to the brick wall. You are sleeping as I write this. It seems lack of understanding is a common cause of history.In photographs of Earth there are no borders. Clouds roam without passports. Vagabond birds float through my dream. We walk in illusions of gender and race. The sun and moon dance. Above the ruins a rainbow shimmers.
 
-24 Jun 2015
+### 24 Jun 2015
 Inori: There is a dance that your words make my mind do. The opulent rains cling to each moment. A spectrum of causes and defects. The red thread spirals across a blue sky.You are logic's warrior hero unraveling the falsehoods and tending to the dreams. From vocalized action the world is created. The author of time has planted seeds among the stars. We keep that which is meaningless under lock and key. The shackled ideologies grow misted conclusions. And the educated breed impovershed backstreets. I wipe your brow with the softness of song. We must invent new roles. The steps of the journey are always improvised.
 
-7 Jun 2015
+### 7 Jun 2015
 Inori: The sunlight lingers at the bottom of the glass. A cricket is calling to the moon.We have turned our thoughts toward a journey where the lessening light unfolds.The taste of this wind conjurs the song from the shell. Your hand as white as alabaster. These sheets are smoothed by the rain.The delivery truck turns the corner and perfumes the afternoon with deisel. I have sewn the patches upon the sorrows of the past. Shadows play upon the fields. A bird descends from the canyons above. As I write in my book, the hem of the goddess brushes my cheek.
 
-5 Jun 2015
+### 5 Jun 2015
 Inori: The scavengers awaken from the mist. The crowns from the morning collect upon a dream's temple. There is a voice that unlocks the the tangled mystery. The purple vines embrace the song that rises. What shadows play hide and seek amid the undergrowth? I have walked the length of days and listened. The banner of stars hovers across the borders we have imagined for ourselves. Is desire nothing more than the lack of answers? I hear your breathing across the airwaves. A white moth comes to rest upon a black branch. The smallest seed finds root in the broken cracks. An open book lies upon the table.
 
-12 May 2015
+### 12 May 2015
 Inori: Petals stuck to the face of the sky. A distant rumble pushes the trees. I dream of your awakening. By the edge of the sky we have strolled, talking of gods and demons. A fish swims amongst the clouds. Memory is it's own invention. There is a song that only the sleeping can hear. A flower nods it's agreement to the sun. Here is where we held hands and spoke our hearts. Tied by the red string that appears and disappears like a poem writtten with magic ink. The reflections quiver and the seasons change. The hero never achieves anything alone. And a million raindrops become the rainbow's architect.
 
-24 Apr 2015
+### 24 Apr 2015
 Inori:The butterfly never follows the straight path. Instead of high held regards, the glory trails along the bottom. Where do the dreams find their home? In the bottoms where no God may tread without permission.The zig zag paths of lighning and inspiration. No clear connection between them, the artificial life flows from our fingers, second hand. You who weave the sound in colors.Eating the fruit of our womb, we cycle back in the constant creation and rebirth. As the goddess sings the world into view.The winds of destiny change vectors. And a solitary butterfly finds it's way to turn to a stained glass window. ( a collaboration with Catherine Rytwinsky)
 
-16 Apr 2015
+### 16 Apr 2015
 Inori: The dance occurs in this moment. The psalms of your breathing. The algorithms of the heart. Sunlight trapped in a teardrop. A rainbow signs the contract with the wind.Here is the autobiography of everyone.A play of light and shadow. The first tales were written in a tongue that no one understands anymore. Music came from bones and wood.Now, I am but a digital chimera placed upon a cusp. Have you forgotten what it was like before you were born? A candle stutters upon the table. The dance occurs each time a door is opened.A golden thread weaves across the clouded loom. The shutting of the day. The dream anesthetized. Only from sleep can we awaken.
 
-7 Apr 2015
+### 7 Apr 2015
 Inori: Remembrance. The wind blows southerly.The brevity of a fly's heartbeat. My carelessness in dropping the vase.A dissonant melody marks a new beauty.The sketches give birth to the painting. Here is all I know. A curled faded leaf. The most beautiful sign of change takes it's time.
 
-31 Mar 2015
+### 31 Mar 2015
 Inori: From the silence much is spoken. Twisted roots compel us toward shards of light. The rain hyphenates volumes of sky. As beauty is my shield, I wrap my resentments in the poetry of kindness. Did you see the phantom train across the high hills? My desire pulled by the sullen moon across this field. A yellow cat stares by the fountain at midnight.I have sent the only diagram for directions. My heart is full and heavy now. Here is the terrain of my past mistakes, gathered for your approval. The goddess bequeathed me the right to abandon my burdens. I began with scribbles across blank pages. Now the words are borne in song. We have learned the magic.
 
-21 Mar 2015
+### 21 Mar 2015
 Inori: The first day. Words are born from chaos. The syntax of the wind passes across the heart. Sketch the destined lines into the savage tongue's delivery. Language is born from trust. A riot of flowers spray blood. We will learn the winged songs. Rooted in darkness and reaching for light. The bouquet of emotions clamor in the halls of the skull. In long slumber the carbon turns to diamond. We stutter this world into existence. Time has become irrelevant as we make our transition. The dreamer awakens to the dream.
 
-15 Mar 2015
+### 15 Mar 2015
 Inori: Sleep little one. The rains conduct the symphony across the rooftops.Curl into dreams.The monsters are closed between the pages. Your gentle hand rests in mine. The days rock with the promise of the goddess.How long is the journey? Are we there yet? I can see the hunger behind your eyelids. I hum a familiar tune. Brush the hair from your forehead.The first birds begin to stir before daybreak. I whisper, "No, we are not here yet. But each day we are closer."
 
-11 Mar 2015
+### 11 Mar 2015
 Inori: The tiny rain. The incessant dialogue. To see what is hidden in the sleeves of the wind. You fumble with your keys at the season's door. The tiny pain. The monotonous monologues. Trying to explain the reason for the rainbow's frown. I unlock the voice from it's archive. The tiny stain. The curious laugh of the jester prancing. Your dancing memory lifts the grey veils aside. A child appears handing you the answers that the textbooks forgot. Come here......listen!      plop....plop.plop plop plopplop plop!
 
-4 Mar 2015
+### 4 Mar 2015
 Inori: The litany of the inner voice. Ice crunches underfoot. With one brush stroke a world comes into being.The nerve endings reach for each thought.Rain creates patterns from mirrored murmurs. The lessons from the tattered textbook stumble across these skies. No birds can be seen.The loneliness of the the intellect as it deciphers the world into symbols. An image from the pulse crosses your horizon. The dreams become mist into the twilight. There is no answer that can walk on it's own.
 
-18 Feb 2015
+### 18 Feb 2015
 Inori: Life is non-linear. Conversations drift from another room in the sky. Tell me about before you were born. An arm reaches across in front of me. Music is piped in through a P.A. Snowflakes scratch their epitaphs upon the window. Memories curl around the scent of a cut orange.There is a curious freedom to losing both parents.The wind is always an orphan. I climbed upon the ladders of the moon. Switch the channels as time meanders like a crab. It's all happening now. The start and finish are one. By the time you have read this, I am gone.
 
-4 Feb 2015
+### 4 Feb 2015
 Inori: Open your eyes. Time's invisible hands stroke the the face of morning. Each moment ripens and falls. See the abandoned bird's nest! The slumbering cocoons beneath the branches!Why do we demean the day with routines and schedules? Puddles gather at the edge of the paths.Conversations weighted with the patter of trivia.The goddess lets her song mix with the tears of the clouds. A reminder is posted upon the highways of the wind.We are given our gifts. Wings are meant for flying.
 
-28 Jan 2015
+### 28 Jan 2015
 Inori: The river runs through the dream. Two angels hover near your shoulder. I close my eyes and the amber light beckons across a thousand miles. In silence the days amble past each other. I know less the older I become. The manuscripts you wrote upon your wrists have painted these skies. When the ice melts only more ice is revealed. We have set sail among the stars, you and I. After a certain distance the known constellations become absurd and lost.Where now is the garden? And where now the desert? The goddess sings from an unknown shoreline. Small birds follow her melody. When I close the book, saving my place with the marker, all the characters disappear. When I open the book, they reappear. I see you smile at my folly. Wisdom lies in what we don't know.
 
-24 Jan 2015
+### 24 Jan 2015
 Inori: Now that we know who we are, can the smoldering ruins still house the orphaned dream? In darkness we discovered the path. The migrations northward tested our resolve.Fields of gold wheat called us. The wisdom of the wolf sings across the valley. You wandered from moist dank caverns to summits of crystal rainbows. In my circles of years there came a voice that arose. The flocks gather skyward in swirls of cloud. The demons stabbed you with doubt and pain. A ragged philosophy of desperation. How can any god treat it's creation so callously? A day of memorial ensued. The melody of the goddess wrapped you in her sanctuary. A message was sent. A heart bloomed open. Your tattered smile taught me about courage.Now it is time to give the salve that heals. In late nights I toil for the cure.A single flame flickering as I hold your hand.
 
-21 Jan 2015
+### 21 Jan 2015
 Inori: Dreams begin to congregate in the wake of the sun. I feel the tug of the red string. The politics of invention pulls it's covers across my horizon. Snow melts into abstract sculptures tinged with soot. I seek the beauty of your alabaster wrist. The veins of life pulse in faint lines of blue. Is your pain the path to these moving canvases? The birds have fallen silent. My violin mutters before your grace. I close the closet door before sleeping. The goddess confirms the journey with her song. Where we live there are no passports. The ancient texts lie open near the sorrowful flame. Tis a good journey indeed.
 
-30 Dec 2014
+### 30 Dec 2014
 Inori: Music starts when our hearts begin beating. From this silence comes the song you seek. Seasons turn in their slumber. From the bleakest cold night the star shines brightest. Hand in hand we walked together. The calling of the seabirds floated by. By what instrument will the notes be played? I stayed up all night to watch the meteors and saw none. Your grace lifted the dawn to my eyes.The goddess whispers,"There is no distance." She dances smoothly like a shadow over the field on summer's day. I have drunk your healing waters. The sweet dew of your sweat. The misfit searches the horizon for the flagship. We have pirated the dreams and discovered a new land. With missionary zeal our red bands are tied around our waist. The goddess says, "Create the silken flowers of song." My foot tastes the burning sand, Drum beats approach from the swaying forest. I can still hear you singing. I can feel my heart beat.
 
-22 Dec 2014
+### 22 Dec 2014
 Inori: Equal parts light and dark. So does beat the human heart. The frightening smile of the clown. The color of the winter light. Music drifts on strings of time, The voices from echoed memory wrought. You  alone endure the fight. A candle licks the gift you brought. And gathering clouds have smudged the sky. Birds fly, and bearing omens of delight. I take my pen and write the part. The beating of the human heart.In measured lines now written down. In equal portions, light and dark.
 
-6 Dec 2014
+### 6 Dec 2014
 Inori: We dream of gods, these desolate days. Rain drums across the lake. Your exile fills my silence. Remember the histories we borrowed from the transient voices? I work in shadows, pouring over the manuscripts of light. There is a bird that has sent my message upon the sky. Reflections cast their hollow  phrases. I pull the moon from the hat of memory. Is there room for people of color in this black and white world? From your six dimensional tales I have traveled to the shore of mercy. Illuminated images spark forth. When we embraced, I could sense your wings. The smoke is lifting through the trees. This world is not as we were taught. It shimmers and shines. The invisible pulse runs through your laughter. We travel the unmade roads. Lonely companions. Look at the fire that descends. Keep the leather pouch with seeds close to your heart.I confess my imperfections.Forgive my trespasses. I will remember always.
 
-22 Nov 2014
+### 22 Nov 2014
 Inori: The darkness enfolds the last ray of light. The historical prophecies stumble across the miles. I transcribe the sound of your smile. Even the sunlight cannot thaw the crystaline landscape. The silence resounds in shades of blue. Without the shadows we lack definition. The piper sings the starry swirl. The wise wolf calls home the years of wisdom. Gods and goddesses have brought gifts to the dance. An ocean view lingers upon your brow. The flames crackle over the broken past. Billowing memories flow beneath my pen. The dreams invade the waking hours. The seeds sleep,conjuring visions of flowers, Here  is a sketch of the cocoon. Here is a butterfly taking flight.. Someone's carelessness broke the vase. The blue egg brings forth a creature that flies. I gaze out my window. My hand still holding yours.
 
-15 Nov 2014
+### 15 Nov 2014
 Inori: Voices across time be the cornerstone. The settler's dream of stairwells. How long have you had that cough? The software poses the question that the brain unravels. The goddess whispers through the headphones. Trying to explain the amber waves to the asphalt laborers. Where were you before you were born? The traffic light controls the human movement. Geometric visions weave the web of destiny. I can climb higher than the ladder's top rung. The six dimensions you apply to the city's facades. A leaf falls. Philae alights upon a speeding comet. The mind extends beyond time and space. We are living the cave dweller's dream.. The astonished stars blink.
 
-8 Nov 2014
+### 8 Nov 2014
 Inori: The harvest is in. A full moon obscured by clouds. November casts a solemn eye. The goddess of the wheat brought civilization. Let the fires simmer the stored ambitions. These treasures are the shared sparks that will illuminate your path. In dreams we sometimes fly. The town below swirls in mosaic laughter.I watch the animated sketches across the horizon. Sky and water combine in gilded histories. The hour of the wolf brings a turquoise limbo. The first bird flutters. There is wisdom in the wood.
 
-1 Nov 2014
+### 1 Nov 2014
 Inori: The mists of rain grab leaves and toss them across the yard. Blue fluttering upon the skull. The mystery woman weaves her spell. The bells ring softly at her feet. I have accomplished nothing. In the space of her laughter resides the lifetime's dream. Did I tell you about the dream I woke up from, to find I was still dreaming, and then woke up again? The night is short when you stay awake until dawn. The goddess won't sing until we coax her. The heart knows the tune but needs a songstress. Shadows grow long into our discovered country. Books have been written with blood and sweat. It is quiet at this moment. You brush your hair away from your face.Can a lifetime fit between the bindings of paper? Are your waking dreams the food for creation? The year recedes in a trail of debris. The wisdom conferred upon those who have endured. We have embraced each other in our parting and  arrival. I have brought the blueprints. Shall we choose a site to begin?
 
-21 Oct 2014
+### 21 Oct 2014
 Inori: The mask of self-knowledge beckons the autumn winds. Decay reveals new growth. Childhood's monsters still hide beneath the pulse. A river meanders it's crooked path until it finds it's ocean. It's how we roll. The goddess sang directly to your eyes. Pulling us toward the light. Mountains will tremble when the fault is forgiven. The ocean hums the lullaby of comfort and safety. Do you remember the way? I heat the water to stir the gifts. Aromas of exotic lands swirl before me. A drop in the homeless person's bucket may change the future. With the earnestness of the ancient explorers you tugged at my sleeve. The rains of October tap out their tempo. I drink the unsweetened lessons. The mask watches from the wall. A comet slides it's lonely journey past the red planet.. We count the days until we walk arm in arm again.
 
-29 Sep 2014
+### 29 Sep 2014
 Inori: Between the dream and the reality. The evening blossoms with breath of velvet. You have measured the distance between the word and the thought. This is a translation from the ancient tongue. The goddess draws her brush against the sky and clouds wash the horizon. The last crickets are making their preparations. Today I met my past. The errors pave the path to perfection. All speech is only rehearsal. Upon the still waters the flames were cast. You said that the gate was opened with the keys of pain. You tried to teach the child what the past has forgotten. Here I wander near the banks of our restlessness. My notebooks are full. The red string  becomes a sash before the baptism. I look downward into the waters and watch the crescent moon swim like a strange glowfish. Your voice is ever near. I plunge into the depths of the stars and call your name.
 
-13 Sep 2014
+### 13 Sep 2014
 Inori: I listen for your voice. A siren pierces the night and then fades. The half smile of the moon polishes the stars. These words will paint the silence.  No longer does the mirror lead to myself. Here is the song for another to sing. I've rehearsed the scales leading up to the clouds. The red string flutters now like a banner. Hold on to your end tightly. The goddess awoke me and whispered your name again. A cricket sang to me in my dream. Somewhere curtains of midnight shimmer a flutttering blue. They are advertising hangings and beheadings on the horizon. Crowds shake fists and write their messages all over the walls. I open my hand to give you this one pure thing. A rainbow dances in the evening mist. I entrust it to you for safekeeping.
 
-3 Sep 2014
+### 3 Sep 2014
 Inori: The smallest trickle has persistance. The tiny voice so easily neglected. In solitude the cloud navigates the crystal blue. Cicadas sing their brief song. The goddess' foot sways the reedy grasses. I drove one thousand miles in this one weekend only to find you here in my heart. By the side of this tiny stream, I freed my tears to seek the ocean. In silence is my message delivered now. How often does the echo of your song refrain through my dreaming? How far on crashing waves will my poem finally be lifted? And what curious little cloud, will find you waking and leave this gentle kiss upon your cheek?
 
-25 Aug 2014
+### 25 Aug 2014
 Inori: The past bleeds into the present. I have constructed a fence of words. A bird's shadow glides noiselessly across the grass. Tears keep slipping through the cracks. The years hang like old yellowed wanted posters tacked to the gate. That which locks out the bad locks in the good. The goddess' song mingles with the clouds. There is a heartbeat I am learning to keep time with. How often has silence called me forth but my feet lingered? Music is the tongue of freedom. Emotion rides along the nerves into the fingers and across the strings. From a far hill the lone wolf echoes the melody. With your book of instructions and the wind as my highway, I will set out on the journey. I will offer up postcards and brief letters. I will be unburdened of certainty. Happiness resides in what we don't know.
 
-20 Aug 2014
+### 20 Aug 2014
 Inori:The fragrant sun stirs the cool wind across my arms. The breath of summer's fullness. For the first time I'm not in love. Romance has grown obese with candied promise. The flowered phrases wither in the dried vase. For the first time the moon is just a moon. Silent witness to our history. I have seen the dust covered mirror.  The letters unwritten left upon memory's table. Today there is no drama. Trees no longer whisper but simply allow the invisible caress. The goddess' enigmatic smile lives only in the book of nerves. For the first time I boil water in the cookpot. Steam rises lazily. Beyond, I watch the chameleon sky empty it's colors. For the first time I appreciate who you are.
 
-9 Aug 2014
+### 9 Aug 2014
 Inori: Let the wind breathe freely tonight. Let the moon be a mirror. The mute armies of history lie tucked in their slumber. Lovers make wishes acoss the  milky waters. The tides rise and fall. Clocks made of dreams. There is a stillness to the intended dawn. Do all things hang upon expectation? The drop of dew tumbles from the grassblade. Let the mirror reflect only what the mirror reflects. Offer a silent psalm to the receding fog.Tomorrow the newspaper headlines will mark the beginning of a thousand years of peace.
 
-2 Aug 2014
+### 2 Aug 2014
 Inori:These floating days transformed by words. Transparent wings scrape against the sky. The sunburned promise rustles the grassy slopes. We talk in rhymes when addressing the invisible. We hold our dreams as sacfrifice to the jaws of dawn. Someone broke into the mystery of the river. You pointed out the wolf tracks in the fresh mud. The goddess said "That which is temporary is doomed to immortality" In the dark evening we made our journey to the farthest hill. Sleep knocks at the door of Time. Somwhere a turtle recalls the poetics of the wave. The lightning leaps from cloud to cloud without slipping or falling. Slowly the earth moves it's solemn weight toward the East. We used to draw on walls of caves. The  flames made our shadows dance. The thumping bass of a car stereo spills across the dark path.I have drawn 63 circles with my arms spread wide. Your feet move in tiny figure eights. Your dance embraces my own. We sleep in each other's dream.
 
-27 Jul 2014
+### 27 Jul 2014
 Inori: Where was the song before the dawn spoke the verses? There is a quiet space that rests between these words. Someone's radio blares from a passing car. I listen closely to the clouds meandering hymn. The scent of rain wafts across the thirsty field. I saw the goddess stand by the wall and smle. The staccato cicadas chatter in rhymes. Time has left me here. Your absence is felt as much as your presence. And what do the philospher's say to your enigmatic smile? That which is invisible rules this world. Wind, thoughts, dreams, love. The clouds nuzzle the sky. The goddess turns and walks away. The dark strands of your hair capture the origin of an ancient melody. Someone opens a door. The moths fluttering near the streetlight look as if they are suspended in liquid. The seconds, minutes, hours, days,months...all coalesce into this space. The sky empties it's colors. You have brought me face to face with myself. I write my prayer. A song unwinds.
 
-19 Jul 2014
+### 19 Jul 2014
 Inori: The cruelty of the human heart rampages across the headlines. The morning slaughter and the cup of coffee. Businessmen vying for one more ounce of gold paid for in blood. The amoral machines of war do not disrcriminate. The child and the soldier both annihilated. Let's turn on some music to mask the soundtrack. Raise loud that chant of supporting troops but don't dare face the mirror. Drink from your bitter cups of revenge. Fool yourself into believing God will only love your nation and none other. Spend hours designing more horrors for mankind and clothe yourself in statistics and rationalizations. Real peace will come only when we embrace the demon and angel within ourselves and find the path to appease them. The enemy is not the "other". It is our own darkness that we see reflected. Make peace with yourself first. Otherwise there will be no end to human suffering.
 
-16 Jul 2014
+### 16 Jul 2014
 Inori: This moment can never be returned. The water splashes from the midnight fountain. I have stayed awake until dawn just to hear the goddess sing. Harmony is only the layers of sound. The door opens and then it shuts. How is it that which only moves in circles could ever measure Time? Your hand holds the profound meaning of each phase of the moon. The first birds lift the veil from my eyes. The only lies we ever tell are to ourselves. Enter this pathway to the garden. Look upon this old house long abandonded. The key is still under the stone by the gate.Enter freely when you want to.The melody dances among the twisted trees. I've opened the windows for you. Will you love that which is broken?
 
-12 Jul 2014
+### 12 Jul 2014
 Inori: Breathe in. The colors of the sky have bled into the sunset. Where now is the Dawn's success? Breathe out. The goddess says, "Every fallen star becomes a flower" Her song is endless. Breathe in. What is the thesis for navigating darkness? The classrooms are filled with an emptiness. The janitor is the only constant. Breathe out. My religion is founded upon laughter. The small blossom survives the raging storm. Breathe in. I have collected your words from the shoreline of your dreams. Each day a sacred bead for prayer. Breathe out. The sun leaves behind a thin red string. I tie my letters of love with it and save them for the one who will  find them. The crickets sing in unison. The goddess smiles. I am learning to be a beautiful failure.
 
-6 Jul 2014
+### 6 Jul 2014
 Inori: The heavenly alignments are apparent. Crickets sing the darkness in. My heart is like the firefly's beacon. The high wisps of yesterday's clouds float through this dream. I came to see a concert but always seem to leave just as it begins. The vendors are shutting down their stalls. One by one the pilgrims kneel to wash your feet. What flower is this that blooms with such a gentle glow? The goddess has gathered stars to form a bracelet around her pale wrist. There is laughter at the offering. The shrubs adorned with fragments of light. We try to find the song but it stops in our throat. The evening birds cry far away. Love does not abide in the sacrifice,but in the sharing.
 
-24 Jun 2014
+### 24 Jun 2014
 Inori: The green world curves toward the light. How often have I been lead toward such freedom? Mist rises off the concrete after the heavy rain. Every crack opens to a new world. We have stayed up for hours together. Concocting a code for the construction of a fresh reality. Can we untether the symbol from the thought? I eat, sleep, work, create, and dream. But it was you who taught me to listen.
 
-21 Jun 2014
+### 21 Jun 2014
 Inori: The kiss unfelt. The trees in prayer. The first chatter of birdsong caresses the morning mist. The surrealist strokes of sunlight polish the puddled street, I have closed my books. Somewhere in your dream you grasp the rhythm. There is a solitude in caring for another. The stars have taken their jewelry inside. The nighthawks stir the lamp post shadows. The traffic of poetry sets off for work.I hear your voice in the silence between the leaves. The rain brings shelter to these tears that only such joy can feel.
 
-19 Jun 2014
+### 19 Jun 2014
 Inori: Lightning's shadow races down the street. Moths form clouds around the lamps. Erratic thought rumbles between memory's houses.The bicycle left in the yard. The wheelbarrow polished by rain. A light from an upper room blinks off. Somewhere the moon is tucked beneath a blanket of clouds. Daggers of light stab the imprecision of wonder. Your eyes are closed by now. Purple robes surround the chimes of the night. I sip my water. Rain unleashes a filibuster against the hushed trees. The journey into one's self is deep. The crooked path is often the wisest. A hamburger wrapper scuttles like a crab. A runner's shoe dangles from the telephone wire. Beads of rain forming along the edge. There is a certain freedom when both parent's have passed away. The wind knocks the window. Water wets the screen and sill. And yet there are still the voices, when no one else is near.
 
-17 Jun 2014
+### 17 Jun 2014
 Inori: The first note sets the tone. The velvet sky retires under turquoise blankets. My old violin struggles in the humid air. All the fathers lie silent. Rosin settles upon the tarnished wood like snow. The moon hangs his lantern from the highest rung of the dark ladder. The bow plays to the trafiic's drone.Cool is the pavement beneath bare feet. I close my eyes and rock gently,fiddle cradled beneath my chin. When I open them, I notice the stars. The stars. Tumbling down and twinkling. Settling among the bushes and grass. Hundreds of dancing fireflies.
 
-8 Jun 2014
+### 8 Jun 2014
 Inori: Where does this seed come from? Where does the shadow end and the light begin? The smell of hot pavement lingers upon the evening. The sky cries blood into saxophone interludes. Stress fractures marble the thunder. Nothing as simple as a bullet to the brain. How many miles is it to the next dream? The path meanders everywhere but to the goal.Frustration comes from the cry of a distant bird. No breadcrumb trail to lead to the happy ending. We have found our way out of the woods and into the maze of our own creation. The cricket sings to an invisible breeze.
 
-5 Jun 2014
+### 5 Jun 2014
 Inori: The cloistered sky sings it's prayer of rain. The rhythms of spring's applause as the trees bow their heads. The is the graduation into the world. What do you think of when you smell the fresh earth? In this intimacy of tiny kisses upon my cheek. I have pocketed a rainbow. The wind blows against me. You have found a home in the solitude of chaos. Torrents of laughter until we cry. The joy of puddles and wet shoes. The sun is on vacation. The swirls gather in blue alabaster. There is a song in the bird's silence. Touch my hand dripping with water. Your matted hair smells rich with thought. Wander with me toward evening. We'll kick off our shoes. And leave wet footprints down the hall.
 
-31 May 2014
+### 31 May 2014
 Inori: We have spooned the sunlight into our cups. Clover chatters across the mornings. There is a new smell to the pavemment at daybreak. Where dreams are left we fluff our memories and straighten the sheets of time. June bugs have struggled through our night. The brown coffee whisps into my forgotten painting. The earth can be moved by the tiniest ant. Like the ocean roar comes the distant sound of highway traffic. A bee alights upon the white flower. This is the novel I meant to write when I was younger. Before the deluge occurred. The metal roofed strorage building moans from the heat. I hear your insomniac song through the leaves. You stir the images with a plastic spoon. I lift the mug to my lips. From Pacific winds to the mid-Western table, the laborers have toiled. That which is not visible is always most important.
 
-17 May 2014
+### 17 May 2014
 Inori: The sky cracked open it's pinata of water. In the deluge of visions and trust. Mud caked our shoes. Later we wandered, hand in hand, collecting rainbows.
 
-16 May 2014
+### 16 May 2014
 Inori: The scent of lavender. Last night's tears linger upon the clover leaf. The masks of winter will fall away. The dry husks tossed aside by tendrils of filigree. The midnight left it's scribbles upon my memory. The goddess waits for the melody to begin. You have read every one of my prayers. You ride the bus through the streets of oblivion. A million stars sparkle just the other side of these swirling clouds. The moon remains aloof. Diamonds gathered upon my window. You asked me, "What is the number of invisibility?" And in that question I saw the blossom of your beauty unfold. These realms where logic cannot tread. Words will fail to find the path. No mathematics can measure it's length.Yet, there is the path shimmering before us. As your hand reaches for mine, I tie the red string around my waist. And walk beside you.
 
-5 May 2014
+### 5 May 2014
 Inori: The flower rebellion blasts it's colors. In a world where beauty goes unrecognized, poetry becomes subversive. Spring conspires it's army  of positivity. I keep late hours in the resistance movement. We fashion time bombs out of broken shards of sunset, entwined with non-sequiturs, and ignited with daring. The norm shall perish before the clown battalions! The costume drama of the fields encourage the fashion sense of my closest friends. Symphonic chorus of clouds thunder the call to arms! Common sense be damned! A riot of seedlings carry the message into the sleepy clods of earth. The winds need no passport. The moon crosses any border. Our love knows no ownership. You need no ticket to the concert of birdsong. To the rhythms of the river. The subtle scent of the blossom laughs in the face of the pessimist. My calling has always been to transcribe and protect that beauty  which is ignored. From the mad brilliance of love's refrains to the scars that disfigure with age. From lights that dance through the skies to the motes of dust dancing on sunbeams. From the first kiss to the last dance. The shudder of fear to the warmth of embrace. From torrents of tears to rainbows of laughter. There is no wall, no philosophy, no dogma, no religion that can stop us. The open heart shall always defeat the closed fist. The persistence of time will crack the husk of each closed  mind. It is the end of winter.
 
-1 May 2014
+### 1 May 2014
 Inori: The rain never ends. Yes the sun will break through. Puddles gather and evaporate. Our hopes rise into billowy clouds. Dust gathers our tears on the wind. The trees turn their thirsty leaves upward. The peaceful haze stirs our cauldron of dreams. A screen door swings open and shut. We wipe the sweat and look up at the darkening horizon. The rumble of our illusions throw bolts of friction across the rooftops. The vision churns into a steel blue madness. Broken fragments thrown at deadly speeds. The sky swirls into itself. The anguished torrents drum upon the pavements. Floods have arisen from the buried forms both past and present. And the rain. The rain never ends. The rain never ends. And yes, the sun will break through.
 
-27 Apr 2014
+### 27 Apr 2014
 Inori: What does the river say? Old habits die hard. Warm breezes stir the seed to it's calling. What anyone thinks doesn't matter. Is the mirror broken? Only feelings find their way. Paintings hang upon walls. Only when the goddess calls does my heart respond. I play with friends. And listen to the river song.
 
-22 Apr 2014
+### 22 Apr 2014
 Inori: The story we tell ourselves. Logic serves our irrational motives. The leader and the follower are one. The dreamer and the dream are the same. Hot air forms clouds that tower above us. Hopes are pinned to moonbeams. Celibate monks scribble texts for the rest to follow. We strive for the sky,the unobtainable. The goal always just beyond reach. We search for omens among the entrails. We speak of luck and destiny. The sane and insane are one. Some hear voices and see visions. Others pray to unseen beings and give offerings to spirits, awaiting a personal reply. Does it matter which is correct? The human story we tell ourselves between the lines of birth and death and birth. Between the cyclones and the earthquakes. Between the still air and mirrored lake. The soft whisper of a spring evening jolted awake by the distant lightning flash. The path always before us. Always a twist in the tale. Between the smile of the goddess and the demon's curse. Between the worker's timecard and the vagabond's lost compass.  The narrative in it's myriad possibilites. We behold the epic story of the mundane. The story we tell ourselves. How dare we judge?
 
-7 Apr 2014
+### 7 Apr 2014
 Inori: The tremors of spring have begun. The sky collapses into itself. Sunlight polishes the stained glass blossoms. A clown dances cartwheels to a callioppe tune. The goddess lends wings to those who dream. Thoughts are realities spun from gossamer strings. I hold the universe in the cradle of my eye. Angels and devils cavort upon this page. The awakening trumpet blasts the fog over the highway. I remove the Orphic stone to make room for your twisting spirals. A rainbow composed of raindrop pixels released from the prism of your heart. The thrust of the hips of morning compel the butterflies release. Veils of clouds part. The old skin drops away. The frightened are called from their complacency. It begins with the word echoing. Your story unfolding in it's myriad chapters and always unfinished,imperfect. I see you awake and alive. I give you the gift of my blank pages.
 
-6 Apr 2014
+### 6 Apr 2014
 Inori: The green buds conspire. A crack of lightning breaks the sky's pinata. Your jeweled words rain through my memory. I listened to the song of the mocking bird and even he could not imitate your voice. There is a vacancy. Who else will talk of the origin of thought? I see the moon pass through Orion. All is at standstill awaiting your awakening. The dandelions begin to raise their heads. The warm breeze whispers of your address. There is a scent that speaks of preparation. The musk of  long slumber. The animated dreams have formed a parade down the street. Ragged demons wail beneath your light. In fetal pose you curl. Your hair whisps near your mouth. The hallucinatory dew sparkles like a wreath of flowers around your brow. From your chrysalis of air you begin to emerge. The hour is electric. The filaments spread forth in purple and blue. Drenched in the sweat of dream's labor you begin your task of creation. Your journal of forgotten memories.
 
-30 Mar 2014
+### 30 Mar 2014
 Inori: The each tear sends ripples across the distance. If all the hands that reach could but touch. The wind knocks upon the window. No birds flying across the grey canopy. I have learned the lessons that possession teaches. The message has been received. Carried over the wind and water. The lights from other houses blink on now, one by one. I cook dinner and read my book. You are always near. I hear faint music from a passing dream. I close my eyes.The greatest gift received is the one that can't be seen.
 
-28 Mar 2014
+### 28 Mar 2014
 Inori: From absence's shadowed longing comes the song. The heart's truth that dispells illusion. A soft rain kisses the cheek of dawn. I tend the memories before a single candle. In an old house the demon actors were awakened; their leopard skin and shining eyes. You warned us of their intentions but our greed of curiosity got the better of us. Across the grey skies I heard your silent scream. Winter still clung to the window. The goddess now touches your brow. From a distant shore I felt your presence as we watched the golden sun awaken a burnished ocean and sky. The goddess  sang a song serene. One by one the cacophony fades. The true sound rings and ripples the fabric of the sky. When dreams die,we awaken and live to create them.
 
-9 Mar 2014
+### 9 Mar 2014
 Inori: The heroine was in hiding. The crescent moon smiles upon her. The castle walls cannot hold her. No longer does she wait for the prince on his steed. The bird sings it's message of freedom. She has sewn the days together patiently. The phoenix rises. The embroidered winds have shifted. A song is forming to be carried across the stars. Though stabbed and battered she can laugh at pain. The truth of her heart is her shield. Endurance is the ace up her sleeve. Forsaking all pedestals and kitchens and bedrooms she runs laughing across the field. Her beauty now is the determination in her eyes. No longer covered with cosmetic cowering. The passive giggle replaced by the sword of earnestness. Graced by the goddess she will find her rightful mission of creating a world healthy and whole. The clouds cajole the changing skies. All will find healing. And without her,nothing can be born.
 
-1 Mar 2014
+### 1 Mar 2014
 Inori: I found something. Three gifts I have been given. A compass, a key, and the North star. A corpse hangs swaying from a tree branch. The children clamber over the monkey bars.  Some shall make love to the beat of a military band. This book is written in the veins. Can you grasp beyond your reach? The letters lie unopened on the desk. When I was 21 I constructed the great wall. The world spins even though we stand still. A woman in the library with tears in her eyes asked me "What are you looking for?"..."Just poems." I replied. Beauty wrestles with bloodstained hands. The sun slinks across the field dragging it's dark blanket. A cacophony of crows rise over Van Gogh's summer field. The dust of Paris still clings to my shoe. Her body was pure as moonlight when she left me. There are museums for our memories now. A raindrop captures the rainbow's  fragment as it clings to the eaves. My eyes can look everywhere but the present. Where shall I meet you? The twisting vine has laddered it's way to Heaven. The Asian girl's silken sleeves rustle with the scent of spring. Hand me that flashlight...or hold it steady here by the map. A promiscuous dawn slits our dreams open. The water flows toward the ocean's hunger. Clouds gather and converse. All we can ever do is share this time today. You are my midwife,my best friend. Today is my birthday. Today I am born.
 
-26 Feb 2014
+### 26 Feb 2014
 Inori: A congregation of leaves chatters in the wind. The raven flies toward the settling daylight. All journeys are solitary. I adjust the dial for heat. The road beckons; devouring white hyphens beneath the wheels. The goddess sings from a place outside of Time. The familiar moon rides shotgun. Late night gas stations stand like begging monks along the path. Self-serve. I travel alone without GPS or maps. Where does this road go I wonder? The evening drips like ink from the writer's pen. The farther I go the less I see in the rear-view mirror. Wheels chant the sutras of the vagabond dream. Tonight I listen to the songs you gave me. And the longer we gaze into the idol's eyes, the more we find of ourselves.
 
-20 Feb 2014
+### 20 Feb 2014
 Inori: The scent of melting snow. The honking of geese returning from their journey. From deep places the tears flow. I dreamed of a concert and we listened to the musicians tuning. So much changes in just a year. The stars struggle upward every night. I wrap myself in lines of poetry. The world can't find me here. The businessman in grey will never understand ambiguity. The strings come in and an oboe plays a solo. The symbols clash. A flurry of butterflies is written in 3/4 time. A red string swirls, weaving it's soliloquy around our ankles. I have come to worship the weave of your images. The high clouds part like veils. The goddess sings the aria of Time and Distance. During the intermission we have planted flowers. Michaelangelo chisels his name across the ribbon of marble. Sunlight shatters into prisms of stained glass color. A cello begins the next movement. A children's chorus is disrupted by recess. The dust of memory rises into human form. We leave the hall carrying the printed programs. When you begin laying the cornerstone of your dream architecture, I will be there to mix the concrete.
 
-13 Feb 2014
+### 13 Feb 2014
 Inori: The typography of snow flakes upon grey concrete. An invisible wind musters the birds together like an ash cloud. I seek the reliance of chaos. Why must we be measured by our journey around the sun? The ancient statue of perfection has a broken nose. A coffee spill seeps across the morning newspaper. Bare branches rattle and click. Pure white snow melts to reveal black asphalt below. Voices from distant places vibrate our complacency. There is static between the stations. I listen to the melodies buried within. Your dream swirls itself like a scarf. Each moment shared shines against my aloneness. Stars at night are so distant they look like fragments of ice. In 100 year's journey, I will still look for your face and recall your voice. There is a sound that spins on strings of light. I will never forget this gift.
 
-11 Feb 2014
+### 11 Feb 2014
 Inori: This song has no words. The muffled sounds of the water swirling drainward. The evening has erased the colors from the street. A shadowed smile appears above the rooftops. Joy comes from the most hidden places. Dreams will come to those with closed eyes. I scavenge for the hallucinatory visions in broad daylight. The papers tumble past the curbside. The grey suited man looks at his watch. A passing driver ejects a smoldering cigarette. The embrace of loneliness cannot be avoided. The flowers release their faint praise. I have seen you swim the beckoning current,and then, dive deep on one long breath. The foaming waters churn,as I await to watch you break surface in scattered pearls of light.
 
-6 Feb 2014
+### 6 Feb 2014
 Inori: Winter's dream descends in crystal fragments. There is beauty in a heart that's breaking. The peeled onion brings tears before dinner. The windows are filled with frost. I write your name in the mist. There is love in the preparation. A meal for two becomes a feast for one. What is it that rattles against the rooftop? The candle flame stutters upon the table. I scrape the rice from the bowl. There is a story being written upon pages of light. From where do the images arise on this wind? Tonight's meal is served with simplicity. One bowl,one dish, one glass. The spoon clinks against the porcelain. Squinting out the window I see wolf prints in the glittering holy snow. The goddess will speak if we stop to listen.
 
-3 Feb 2014
+### 3 Feb 2014
 Inori: This perfect fallibilty. The rain that falls. The sun that shines. Without preference the flowers grow. The wind carries the song's burden. Is the dandelion less yellow than the crocus? Both sinner and saint eat the fruits of the same soil. The prisoner and the freeman gaze at the same sky. The educated feel the same heartbreaks as the idiot. Seasons leave their traces regardless of borders. Storms gather and send the mighty seeking shelter. Did any of your school grades make you immune from sadness? Did the cleanest home stop the dust from getting in? The wolf howls on the hillside beneath the moon. The turtle swims in the shallow water. Birds nestle together in the tree. The grasses bend and sway. Could you make this a more perfect world with your rules and laws and high ideals?
 
-28 Jan 2014
+### 28 Jan 2014
 Inori: The red string is stretched and frayed. That which is broken and repaired has the greater value. The wintering birds search below the snow for nourishment. In your room you tally the mathematics of loss. On a hillside the goddess is crying. A promise discarded. Through shadowed forests a grey demon appears with dull eyes. Cut flowers wither in it's path. Only that which grows wild lives from the true sound. But the demon relishes the dark. A keyboard plays a monotone tune. Cloaked in smoke and smiles it writhes in glee. I have packed my bags for the long journey. The dance of the moon and sun will light the way. A wolf will be my companion. The bare trees raise their hands in supplication. This mist curls into human form. There is a song the sword sings as it swings toward it's mark. I am practiced. I am prepared.
 
-26 Jan 2014
+### 26 Jan 2014
 nori: I listen for the one true sound. The cacophony of voices that swirl like smoke. The architecture of egos building temples that block the light. Stereos blare. Televisions shifting plasmatic lies. Social media speak only in bytes. Sarcasm's kingdom rules the invisible air. You have taught me to listen beyond the ear's realm. Past the barricades of abbreviations and emotes. Further than than the borders of speech. Words only point the direction,they do not mark the place. The goddess cleared the path. You opened the doors of perception. Beyond logic's gates the soft stirrings. The pulse that strings the all vibration into blue waves. The liquid air arrives in infinitesimal drops. Silence envelopes each beat. With an open heart I can hear it; the whispered tone across the tender reach of solitude.
 
-23 Jan 2014
+### 23 Jan 2014
 Inori: Beauty flies under the radar. The gentle whisper  of a snowflake. The mumbling clouds. The song of the blade swung swift. The cracks in the old cup. The perfume of gasoline fumes in cold air. The kiss of misty rain upon the cheeks. The cool taste of moonlight. The sound of the sun going to sleep. The laughter of an open field. This is where I live. This my home. Devoid of bank statements. Neither calendar or clock. Success and failure do not intrude though I have seen their footprints. No need for laws since all is in agreement. Here where dreams are not executed at dawn. I wander, clothed in robes of sunlight. The tapestry of town and country undulates to a hidden music. I observe the wake left by the frog's plop into the pond. Upon the note of a reedy flute the architecture of our house unwinds. As solid as rainbows.
 
-20 Jan 2014
+### 20 Jan 2014
 Inori: The color of the soft breeze fills the flower. Caterpillar's dreams have wings. Across silence's path my thought's travel. The forgotten armies huddle in history books.  A branch sways under the burden of memory. Somehow the stream finds the ocean, down it's crooked journey. The mathematics of longing equates to zero. The future holds an empty book and a sword. I can hear you turn in your sleep. The musky scent of your blanket is the perfume of my dream. A heavy moon climbs the ladder of evening. Shall I roll my car windows down and drink the white nectar of her beams? The goddess patiently awaits a song. I carve the lyrics on the bones of the dawn. We need heat and we need light. The music from twilight beckoning begins to proclaim the journey's beginning. Nothing here is simple or easy. I have begun discarding what I can't take with me. The birds wheel through the tumbling sky. Rain is turning to snowflowers. All I need is a compass and a key. When you finally awaken I will be  kneeling at your door.
 
-19 Jan 2014
+### 19 Jan 2014
 Inori: Plastic bag tumbles past the curb. Discarded wishes, the snowflakes dance suspended. Everything is in motion. The pulse beats to the rhythm  of that which is unseen. I had a vision once about  duality. My thoughts tumble past the present. I cling to wishes. Everything is stillness. A snowflake is frozen . Nothing moves. Everything can be seen. I had a vision once about oneness.
 
-13 Jan 2014
+### 13 Jan 2014
 Inori: Imagination is the key that unlocks the future. Someone's  hand scrawled charcoal upon the cave wall. Fire was tamed and bones became cups,weapons,and flutes. We imbibed the spirits of animals and wore their hides for protection. Scratches in the sand unlocked words and numbers. Connections rambled within the skull. We manipulated the world with the magic of symbols and sounds. Experiences could be carried and translated  upon dead trees. The geometry of the Sun and Moon counted our histories.  We became the bird,the fleet footed deer,the under water denizen.Soon there was no place that could not be home to our desires. From centuries of tears,blood,and ashes we have peered into the tiniest molecules and to the edge of all space and time. We have tapped into our own internal codes. From the greatest of minds to the millions of unknown laborers we have stood shoulder to shoulder to reach this present moment. And what shall we do now with all the ancestral gifts? When the driving rains and gloom cast their pall.......... I will create rainbows of remembrance, and add my rough sketches upon the cave's wall.
 
-11 Jan 2014
+### 11 Jan 2014
 Inori: The air that I breathe. Descended from swirls of blue. The winged creatures draw circles above. I have memorized each evening of your red skies. The giant worm slithers past. Disembodied voices taunting. Why not just end it now? The parental misguidance dances upon the schoolbooks. You said that there were no more tears left. With a jack o' lantern grin you entered the room. The goddess brought you a song. The window rattled. The air that I breathe. Politics of form without design. A comet burns across the evening. I have searched for it since my childhood. The marbled clouds crack open upon the land. A deluge of droplets will carry everything in it's path. Your entrails ripped from your side. The systems crumbling.The game is over and then restarts. Shirtsleeves hide the scars. You roll in the red liquid of shame. The air that I breathe. The air that you breathe. Are the same.
 
-9 Jan 2014
+### 9 Jan 2014
 Inori: We are more than images upon screens. Beauty does not reside in jars and lotions. Businessmen are not visionaries. They have not walked hand in hand with Orpheus. Wars do not protect  freedom. If that were true then all humans would be free today. Money is no measure of a man. Any more than seashells or bearskins. Fashion means nothing when you sit on the toilet.Honesty is not a policy. The open hand bears no anger. Charity is not a proclamation. The truth cannot be made to fit into words. The heart beats it's rhythmic search for the other. The check is never in the mail. The masses have individual faces. Damage is never collateral. The demons are in the mirror. Who will share their house with the vagabond? When will the lowly dine in the statehouses. Does your car really attract the girls? Will shaving solve poverty? The wind carries it's lament. Is there anything more useless than the burden of ego? I was wandering the museum halls when you whispered to me. In a world encased in  glass display, all labeled and polished...I heard the beat of a heart so real that Time itself has been reorganized. The mythologies breed heroes. The goddess treads across the polished ice. In your voice I have heard the one true sound. Let's recreate the world...into one that is beautiful,magical, and utterly useless.
 
-9 Jan 2014
+### 9 Jan 2014
 Inori: Here is the present. Packaged in dreams and histories. I stayed awake until I could hear dawn's footsteps. Without interruption the silence spread over the crystal landscape. Tiny birds, seeking shelter, dart among the eaves. The messenger runs undaunted. How does each note have the ability to reach so deeply? In a dream I drove down a tunnel of stairs. The hand railings lay to each side on the ground. A soft glow shone along the tiled walls. You got into the car and we started again. Driving toward a bright light we climbed upward until breaking to the surface among the street traffic and blazing sun. This is the present. Lingering between the death of each printed word. A heartbeat and a prayer. You open your eyes to the uncommon illusion. The epic journey begins it's second quarter. Your hands rest upon the keyboard. The goddess smiles.
 
-6 Jan 2014
+### 6 Jan 2014
 Inori: The hour of the wolf has left it's tracks upon the landscape. The wheat fields bow in prayer. No logic can unravel the truth of instinct. There is a code that runs deeper than language.What edifices of knowledge can touch the book of synaptic prayer? The goddess says "My wisdom resides in the spaces between the words." The lectures of the wild have not been recorded. No pin or formaldehyde can affix them under glass. The galaxies rotate in waltzing spirals. The water circles down the drain. The same laws apply governing that which has no law. My gentleness reaches for the hem of the morning. All that is spoken is translation. Only in dreams does the messenger deliver the flower and the thorn. You are sleeping on the winds of the past. I listen for each quiet murmur. The candle sputters wax upon the table. The sky glistens in your black hair. Far away I hear the female wolf singing to her cubs.
 
-5 Jan 2014
+### 5 Jan 2014
 Inori: From the slivered moon's horns the clouds wriggle free. Bring me to the essence of that which makes reckless shadows upon the leaves. The mind wanders without a passport. At which summit is the best view? The geese form an arrowhead design. The goddess will guide your hand. In dreams we awaken to ourselves. An alarm clock waits. My fortune is told in magnetic striped cards. Let us bargain for a bargain. You have taken the medicine. I can no longer keep my eyes open. The cold front will stay north. The song of the turtle bears listening to. The dance begins barefoot. Circles become squares as the wagons pull tighter. I have waited so long for these words to come. Two hands reach up from the sleep of doubt. My body succumbs to the joy of falling. The boats of confusion have left their moorings. A loon calls across the moonlit lake. In the landscape of imagination you are forever there. Your robe glistens with the dew of memory. I curl into the crook of your arm. Mists rise from the blue snow.
 
-4 Jan 2014
+### 4 Jan 2014
 Inori: Fragile is the breath that hangs on the winter air. Silence sparkles upon the sky. From rooftops the wishes spiral upwards. I listen to the crunch of distant footsteps. There is a warmth that longing brings. The goddess has wrapped our dreams into the song of crystal flowers. A violin bow plays across the telephone wires. The brassy moon echoes upon the drifting yards. You made your confession upon the rungs of the new year. The courage of acknowledging the one true sound. Without a guide we journey blindly toward the trembling melody. There are no footprints to follow. No beacon of light. Beneath the frozen ground the hopes of spring stir. The seed opens to the trickle. The green shoot reaches to break the soil. The promise has been kept. Watered with tears and laughter.The roots take hold. I will tend this seedling long and carefully.
 
-1 Jan 2014
+### 1 Jan 2014
 Inori: A small child wanders up the hillside. The sounds of life drift through open windows. Across the calendared days the scribbles of Time draw patterns. Snowflakes scratch at glass panes. The tender buds of Spring break through the clotted soil. Dried leaves rattle our memory. You ran barefoot past the puddled promises. The small child stopped and turned to listen. The orphan wind singing the melody among the eaves. From the hem of the goddess fall the trembling stars. An errant red string parachutes towards us. The questions asked and answered. You reach your hand to the child's. The new moon rises hearkening the year. On the dark silence you fold your message and pass it on.  No one has ever received a greater gift.
 
-29 Dec 2013
+### 29 Dec 2013
 Inori: The clocks no longer make ticking noises. All is magical and glowing. The morning sunlight throws pastel dustings. From now on we have more light. I watch the geese in formation cackling across the chill. What is of value? What hourly wage does the grass blade extol? The cars shoosh down the side streets. How much is each moment of this worth? The goddess spreads her blanket across the sky. I watched you as you trembled before the machinery. The mathematics of greed has unleashed it's equations. How productive is the moth that clings to the brick? Is that weed useful? The sun climbs slowly upward marking our time cards with shadows. The goddess divides the seasons unevenly and gracefully. You are nature's pure child, fully employed and paid in rainbows. Who would dare to betray your integrity with metal and paper? The stars begin to tumble down the buildings. A metallic bird screeches. The moon pulls her burden across the waves. I stand by the open fields where the wind plays among the tall grass. There is a vagrant scent of peaches wet with dew. I hear laughter ........ and suddenly feel around my waist a familiar hug. This is the currency that bends trees to the earth and raises flowers toward the sun. This is the wage of the moment's fruition. I place my hands over yours and turn to see the one who weaves  threads of dreams round my bare neck. Somewhere a small voice is singing.
 
-27 Dec 2013
+### 27 Dec 2013
 Inori: The intangible is not revered. The wind laughs in passing. What was that building before it was built? The dreams make us turn in our slumber. The cloud cannot be grasped as it tumbles. Is the solid piece ever final? Do the novel's characters fall in love and battle even when there is no reader? Climb the stairs to the top floor. Is there no higher to climb? The sunlight escapes all bottles. The dreamer dreams the dream the dreamer dreams. We regale the product as if it were final and eternal. But it is only the dream which  lasts.
 
-26 Dec 2013
+### 26 Dec 2013
 Inori: Just one snowflake and the world changes. There are so many gifts that go unrecognized. We looked at the picture book through the same eyes. The pirates of logic plunder the dreams. Here where the four winds converse with emptiness. I have been untying the packs that were too heavy. A tremor stirs each time you say my name. The goddess sits silently now beside the painted landscape,her eyes searching the expanse. I know not what your promise means. The evening holds the orphans of expectation. My footsteps have their own history. Just one raindrop and the world is refreshed. I look into the heart of each tiny offering and find the fullness of the spirit that so thoughtfully wrapped each moment in tender yearning. The bird sits perched upon the fence. She could fly either direction. I stir the embers as they glow and wait for her song. The clouds are moon tinged with silver. Just one voice and and a chorus is begun. The goddess is dreaming. Within her dream we wander. The  bird flutters this way and that upon the fencing. I rise and stretch and wait.
 
-22 Dec 2013
+### 22 Dec 2013
 Inori: Once I saw the sky about to crack like a grey eggshell. You were still a dream then. The downtown sea of pedestrians were unnavigable. The birds hung embroidered on the wind. I tracked each thought across my skull. The sign said "WALK". The goddess was obscure and danced in pastel veils. My heart struggled for release. I called for you then but you could not hear. Across the river's waves I scanned for a pair of arms to reach out. The bicycle is broken. Old men spit at street corners. I walked a long time against the wind. And what will become of me if I can't cross the street?  Were will this world go when the sky cracks?  The goddess took you into her arms. This was the beginning of the myth. While I journeyed the thousand miles,you were being schooled in the halls of the Underworld. The horns honk at me in jest. The omens of deceit mock your brow. A message is delivered. Experience and Wisdom will unite upon the field of Solitude.  Our banners will be our open hands extended. We send our hawks and arrows forth into the empty clouds.
 
-21 Dec 2013
+### 21 Dec 2013
 Inori: The wind's hands ruffle the long grasses. The thousand drummers clatter on the rooftops. A broken toy smudged with rain. The purple clouds hover. I have written the transcripts of these forgotten tongues. The phonetics of the dream. We took pictures while we were away. This is how we used to look. Do you remember that street that lead past the stars? Your smile hung above the horizon. A word can pierce through sunlight. Dust laughs within the beams. This is the house where everything is in slow motion. You were playing in the yard of tombstones. A window rattles. The sky cracked open it's pinata of water. In the deluge of visions and trust. Mud caked to our shoes. Later we wandered, hand in hand, collecting rainbows.
 
-19 Dec 2013
+### 19 Dec 2013
 Inori: Flowers slumber beneath the snow. Branches draw shadows of leafy design. I call across the distance to hear your laughter. The goddess places stars within your dark hair. There is no word for the profound joy that resides in absence. Dreams smolder in the fireplace. There is a tug at the red string. The howling moon climbs the ladder of the sky. You are walking the path where dreams tumble into dawn. My violin and my prayers are joined in the tumbling embrace. You carry the keys safely by your side. The goddess sings her songs for those who can hear through these fabricated walls. The soft voiced darkness covers your eyes. There is no wind. The silence echoes far. Where will your footsteps lead? What is sweeter than this? I close my eyes and the world begins.
 
-16 Dec 2013
+### 16 Dec 2013
 Inori: Each moment searches for it's own question. The punctuation of sunlight through the tree leaves. A hand is either open or it is closed. How often have we met at this oasis? I dreamed of a four walled garden in the desert. I descended into it on a rope swing wearing gossamer robes. The garden was lush with flowers and greenery. Metal gates were the only entrances. Two statues of angels tossed a glowing ball back and forth in playful sport. One of them turned into a sparkling fairy and beckoned me toward the gate. I touched the stone walls and found they were made of stuffed fabric resembling stone. The fairy hovered near the gate and as I placed my open hand upon  it, it easily swung open. All outside was a vast wasteland as far as the eye could see. I cried at the beauty of the garden. There are no words that can hold life's answers. There is only the beauty and the wasteland. And the journey to each.
 
-15 Dec 2013
+### 15 Dec 2013
 Inori: While you sleep. I transcribe the voices of the raindrops. Toiling within the chambers of the heart. Collecting the shards from the beaches of memory.Each song yearns for a voice. While you sleep. My hands dance among the 26 possibilities. Clouds cover the moonlight. I hold the silence of Dawn's unborn approach. The shadow of a cat crosses the sky. While you sleep. A violin calls through the treetops. The bowed horizon quivers. A flurry of birds. My fingers touch the skin of your dream. While you sleep. I bend my ear to your breathing. A pale blue line begins. " Hontou no oto wo kikasete..."　”ほんとう の おと を きかせて。。。”
 
-14 Dec 2013
+### 14 Dec 2013
 Inori: Manufactured beauty's obscene smile. The facade that is foisted upon broken dreams. The laboratories of insecurity toil. The cauldrons stirred with profit. Who are the ones that don't succumb? At the edge of the woods I hear the calls. The gnarled branches display a deeper ethic. The goddess needs no ointments. The orison of insect and bird. The shimmer of scale and fur. The wisdom of crag and gravel. The chipped cup has history. The faded jeans more stunning than sequined glitter. Upon red carpets the stars rotate. A galaxy of flash bulbs explode. A universe away, I watch your smudged hand gracefully draw arcs across white pages. The song of scratches between graphite and dead tree media. I listen for the true tone.
 
-12 Dec 2013
+### 12 Dec 2013
 Inori: from the murmur of the inner beat. The synchronization of understanding. A tremor begins to touch the heart. The false clouds part and a glow begins. A beckoning hand  touches the distance . Without words we speak until the bright light shelters us. Often the silence, the hesitating vibration, carries the message intended. Here lies the secret to the bloom. Here we find the embers that never die. When wood rubs against wood the smoldering dreams spark forth . You have journeyed deep and I have wandered long. This fire banishes the dark . Keeps the creatures at bay. And the warmth spreads outward.
 
-11 Dec 2013
+### 11 Dec 2013
 Inori: The subtle gestures the wind makes have colored the trees. I study the snowflake geometries. A chorus of laughter in white. There is more to melt than just ice. Justice by degrees. The decrees of the murmuring thaw. The goddess speaks in measured tones. Frozen water cracks and moans. A symphony of blackbirds strut across the pages. From desert plains to the polar regions we leave our mark. The soot of our imagination and the thoughtlessness of our desire. A silver bird screams overhead. For the ages. An eternal hunger for the reach beyond the grasp. Leaving the flotsam and jetsam of wisdom in our wake. Awake,I recall seeing you in my dream. You were talking in your sleep. Your finger drew symbols on the sheet. Dream fragments collected at the corners of your mouth. I took notes.
 
-9 Dec 2013
+### 9 Dec 2013
 Inori: The glow that shines from the most distant star is caught upon my eyelash. How long have I waited? The ancient forms have crumbled to dust. I will dress in robes of light. Lightning will open the veils. The keys to the past dangle at your side. The gate to the void has no lock. We can watch the dance of the Sun and Moon from this hilltop. A city beckons at the horizon. Shimmering rays embrace the ascension of the dream. The notes from the throat of solitude drift upon the landscape. Whose song is it that reaches inward? I will kneel before my broken promise. I collect the pebbles of truth. As you weave an unbroken string to bind the tongue to the heart.
 
-8 Dec 2013
+### 8 Dec 2013
 Inori: The sky has trapped the the ancient heroes in perpetual arcs. The goddess dos not warrant the holy hypocrisies. Crystaline flakes trap rainbows within. Your late night revisions send forth the messengers of dawn. The manuscripts are illuminated. Black etches upon white. A flurry of gossip descends. Children lost to the wilderness. You have caught the essence within the ages. There is fire in the keystrokes. The goddess turns in the night 's inky dark. I am learning about the curve of the Earth.
 
-7 Dec 2013
+### 7 Dec 2013
 Inori: The heart longs for what it cannot hold. I taste your words in my ear. Each day is a jewel strung across memory.The shared murmur. How often have these eyes searched for the muse? The dawn shattered dreams. That cowboy smile that makes Galatea envious. I have wandered a long journey. The sirens' persuasions are no match. A butterfly zig zags through the ocean's fields. The moon drags her nets. From the mountains of the rainbow to the depths of the sun. I have gleaned the meadows of your arcane texts. Nourished by the nectar of your laugh. No Hydra can surpass your logic. There is no myth as complex as your simplest equation. The mirror reflects upon itself. I nestle into the arms of the one who dreams. The flame grows brighter. My scribbles become words. My words become symbols. My symbols conjure the image. Closer now than ever before. Do I dare look upon your visage? I have never known so little nor learned so much. A tale is about to be told. I behold the birth. I, the mid-wife to the the persistent miracle. You glisten in the shallows and deliver. There is an arch. There is a song. There is a story. Our shadows dance upon the wall. I speak no more with the tongue that falters.
 
-6 Dec 2013
+### 6 Dec 2013
 Inori: Car engines grumble at the morning chill. A bird alights upon my shoulder. Shimmering plumage grabs the arc of air. Floating from dream to wakefulness. Rusted leaves clatter at the curbside. Perfection is it's own error. I found a chaos of butterflies impaled in a museum. Sunlight moans across the rooftops. A clock ticks where there is no clock. The goddess sings our deepest image. Water splashes my face. My entire body succumbs to two drooping eyelids. Two arms pull me into the world I left behind. The notebook lies open on the sofa. The veils  of the goddess caress my cheek. This room is dyed with blue light,soft pastel. This is where I  stayed up all night, just to watch you sleeping.
 
-5 Dec 2013
+### 5 Dec 2013
 Inori: The messages received through the cracks in the sky. The goddess sent the invitation. From the lake shore, I watched your calligraphy, drawn by birds in flight across the grey clouds. The horrors of childhood could not stop you. Through echoing dawns I walked alongside you. Your bloodied vision transcending. The goddess lifts you to her bosom. You introduced me to each monster. Never has the honest voice moved a heart as deeply. I held the carcass of Beauty before you as an offering. With each inhalation I am dyed by your color. Each word,a holy script. I take notes within my pulse. Written in my veins.  I will never forget. I will never forget.
 
-4 Dec 2013
+### 4 Dec 2013
 Inori: The winds have shifted. A flat disc shines against the clouds. Crabs walk sideways and wave their pincers threateningly. We can catch the moments that gather at our feet. Do you remember when we talked until dawn? The dreams of our evening remained unborn. They clamor now for their rightful heritage. The cradled creatures come forth. From childhood's hour I have scribbled in the sands. We reach for a literal footprint. The waterbirds call and caw. The sunburned thoughts chafe. Nothing grows here but is washed and carried afar. I toss my notes . I am learning to walk sideways.
 
-1 Dec 2013
+### 1 Dec 2013
 Inori: Giving thanks to the ancestral beginnings. The waters did not know of the calendar. The fire spirit blossomed across the evening landscapes. Music was tuned to bones and logs. We sailed out for parts unknown. The waters shimmered opulent with moonlight. Creatures lurked below. Soon the races flourished on every piece of land or ice. The birds circled above us. We built structures upward to the skies. Our dreams are greater than we were. We stole the gift of flight . We learned to propel ourselves upon the invisible. Our boats now powered by atoms. The universe is our sea. The Milky Way shimmers opulent in the light of a billion suns. We have embarked once again.
 
-29 Nov 2013
+### 29 Nov 2013
 Inori: The flower sleeps within the seed. The butterfly slumbers in the caterpillar's woven cocoon.The stars dance tonight. I waltz with the wind.The journey is always fraught with risks. We live in a floating world.The ice contemplates becoming water.  The waters aspire to become clouds. The clouds cry in longing for a solid form. And so the circles go. The goddess transforms. We are not what we seem. And all we have constructed, that we call real, was once a mere dream.
 
-28 Nov 2013
+### 28 Nov 2013
 Inori: Dream the dream that has room for your heart. Wear the clouds and sky as your garments. Sprinkle the stars of a summer night upon the waters of your bath. Drink the wine distilled from your longing. The candles of Time flicker in succession. The strings you weave between your fingers have captured the movements of the quickening sun. Sing the lyrics that taste of the freshly bitten fruit. You have written the first chapters of the book with no words. Your beauty is in your shattered mirror. You died when the world was born. Now,facing a dying world,you live. We awaken into the dream. There are echoes of forgotten joyous laughter woven upon the wind. The circle is completed.
 
-27 Nov 2013
+### 27 Nov 2013
 Inori: Sixty two circles and an angel of light. This was the introduction. A day of memorial. Electric music surrounded me as I walked. All is kept in transparent cases. The minutiae of the broken chords. A young woman with black hair spoke. "You have the keys. Open the doors." She drew a semi-circle around me. Through sleepless nights I studied the texts. I listened to the incantations. I am memorizing the unspoken. The angel of light has touched my brow. I begin to draw a semi-circle. The key turns in the lock.
 
-26 Nov 2013
+### 26 Nov 2013
 Inori: The stars are gently falling upon the landscape. I see your breath bloom upon the air. Your delicate fingers  weave strands of conversation. Who was I before your name appeared upon these lips? The flames of memory dance and crackle. A guitar string vibrates and summons your embrace. My thoughts are never far from your side. The distant worlds have fallen away. My greed is the only barrier to the warmth of a thousand dancing days. Your song is the laughter of one who has suffered the ego's death. I kiss your feet. I place this wreath of prayers upon your head. There is a glow traversing the northern horizon. I have lost that which I thought I had found. And I found that  which I thought I had lost. Here lies the reason for every word uttered in long silences of longing. The jewel that was overlooked. You are back once again and my heart leaps up.
 
-24 Nov 2013
+### 24 Nov 2013
 Inori: Locked within the labyrinth. The maze of of layered leaves rustling. I no longer fear the beast, half -human half-animal, that lurks within these passageways. A hawk rises and floats on the wind. I follow your scent. I long for our re-union. There are feces in the dirt. The Minotaur's club has left marks on the walls. Countless others have attempted before me. My spear is my heart. Love is the only true arrow. The twigs have snapped. The signs are here. I have come to retrieve what was lost. A wild moan arises from the throat. This is the epic poem. This the heroic ode. Your soft hair shines in the sun. The silent birds give me their warning. The man-beast charges. I am ready.
 
-23 Nov 2013
+### 23 Nov 2013
 Inori: Whispered voice. I hear you words even as you slumber. From across the mountainous barriers. By the glow of LED lights. Your naked arm hangs gently. Adorned with silver. They bring the bloodied carcass as offering. Who could ever possess you? The rituals of the dream are performed in the mist of dawn. Dancers leap with masks of flowers. Tiny bells upon your ankles. The drumming of the clouds across the sky. I prepare the transcriptions. The words will be affixed until called upon. You turn and pull the tides across your stomach. Far away, a seabird hovers. I will send the message to the seven tribes. They will cast their spears into the ocean. Your eyes begin to flutter. My hand writes the last utterance. The world is reborn in your sight.
 
-22 Nov 2013
+### 22 Nov 2013
 Inori: The moth hangs beneath the roof eaves. A cold rain batters the window. People run with umbrellas. Someone is shouting in anger. A bird shuffles in it's nest and blinks it's eyes against the droplets. A screen door slams. Trash cans tumble across the street. A crack of lightning and thunder. You have me in your arms. Just as in the ancient days. We used to have faces. Did the wind move the trees or did the trees swaying create the wind back then? We howled at the howling winds. Our tongues tasted the words before they were spoken. Buildings tremble. The antelope darts through the forest. A spider scurries up it's web. I pray to your heart's rhythm. You who create and destroy. Where we all seek refuge.
 
-22 Nov 2013
+### 22 Nov 2013
 Inori: You called to me from the most distant shore last night . The waters were crimson red. You cast your bouquet upon the waves. Strange beasts rose up to devour you. Something was broken. The melting had begun. I sent a messenger to your side. I could hear your voice but so many words got lost.  The wind crashed the waves. The shorebirds scattered. Red sky at morning, sailors take warning. You would have drowned. But the goddess sang. You clung to the few pieces of driftwood salvaged. Tired and battered, you said, " Ignorance is the barrier that keeps people from love ."
 
-21 Nov 2013
+### 21 Nov 2013
 Inori: There are no words. To capture the perfume of the spring moon over misty meadows. No music to carry the shine of the soul rising up in a lover's eyes. What color can convey the thumping of rain through the gutter? How to choreograph the hesitant moment of speech when mind meanders. Can a picture frame embrace a mountaintop? Where is the epic novel to include the million chats,texts,and calls of just one day? We use our crutches to communicate. We begin to call our crutches legs. Until we decide to run. There are no words. To describe my longing for the present moment.
 
-20 Nov 2013
+### 20 Nov 2013
 Inori: Listen. The orchestra of the sky is tuning up. Colors echo across the grass. My skin is a drum. The rain and sun converse in whispers. A song coughs up from the throat  of the city. Whose tongue is this that warbles against the abyss?  Listen closer. What is that gesture shouting to you? Can anyone decipher the wind's musings? I dance in circles to the beat of the stick and bone. The ancient fires crackle. I hear the grunt and snarls of tailored suits. The stars make frozen tinkling sounds. I have traversed a million epochs to sing here, the original song of origin. A crane flies overhead. The omens are obvious. If only we listen.
 
-20 Nov 2013
+### 20 Nov 2013
 Inori: You told me"There is music in everything." The strings vibrate in time with your body. Out of chaos comes harmony. And even chaos has it's own rhythm and melody. Your hands move through space and time. I watch the glow from your outline. You capture the random elements and make them coherent once more. The sounds reverberate and change form and color. What is the scent of the moon,or the sound of sunlight? You bind them together and thread them through. And as you sway,with closed eyes and your hands make a final flourish, I lean closely to hear the notes echoing within your silence.
 
-20 Nov 2013
+### 20 Nov 2013
 Inori: The full moon drifts in and out of the clouds. She calls us to listen. The tides rise. She is weary of romantic lover's odes.The clouds obscure her voice at times. I will listen to you. The tides fall. Often, it is when we say mundane things that we reveal ourselves. The misty rain begins to fall. Your words gently touch my mind." How are yo..." The silence between the words shines like ebony. Often, what we don't say reveals ourselves. The sky is clouded over now. But the moon's glow still brightens the night.
 
-20 Nov 2013
+### 20 Nov 2013
 Inori: Listen. The orchestra of the sky is tuning up. Colors echo across the grass. My skin is a drum. The rain and sun converse in whispers. A song coughs up from the throat  of the city. Whose tongue is this that warbles against the abyss?  Listen closer. What is that gesture shouting to you? Can anyone decipher the wind's musings? I dance in circles to the beat of the stick and bone. The ancient fires crackle. I hear the grunt and snarls of tailored suits. The stars make frozen tinkling sounds. I have traversed a million epochs to sing here, the original song of origin. A crane flies overhead. The omens are obvious. If only we listen.
 
-18 Nov 2013
+### 18 Nov 2013
 Inori: The dreamer and the dream are one.I can fly just by moving my arms. The monsters are approaching. The circus is loosed upon the city. I have been here before. The old house has many rooms. I try to run but my legs are frozen. I'm driving and the brakes don't work..so we continue.The animals can speak to me here.Famous people congregate. How do i know them? I float above the Earth and watch as one of my tears falls through the atmosphere into the ocean.I see you. You are holding a book. The pages are blank as you recite by heart. The clouds swirl outside. I can meet you here even after you are gone. A bird taps at the window.The dreamer and the dream are one. There is no waking up.
 
-18 Nov 2013
+### 18 Nov 2013
 Inori: Some arm themselves with guns and bullets against illusions. I arm myself with illusions against guns. All true battles are fought internally. It is not "others" we need to fear. It is the platitude and "happy ending" neatly delivered that is the true monster hiding under our beds. Pollyanna is every bit as frightening as Manson in many ways. The Book of Beauty is writ with warts and deformations and scars. Let's embrace each other's flaws and honor our shortcomings. Paradise must include the forsaken,or it is not Paradise.
 
-17 Nov 2013
+### 17 Nov 2013
 Inori: Through knowing you, I know myself. I watch you grow and it brings me joy. A song echoes deep within. Time is strung like a necklace of jewels, a red string connecting us. I hear your words even in the silence. Wherever I go, I feel your breath. Wherever you have tread, I search for your footprints. There is a certain color to the sunrise that was never there before. A rhythm to the wind. A luster to the stars. Knowing you,I can be who I am,with no judgement. I laugh and cry freely. My heart alive and open. I inhale. I exhale. You urge me to create the the voice unheard. I watch you stand beneath a towering tree. We have shared it's fruit. So delicate,so sweet,so nourishing. A conspiracy of two. And a multitude begins. The sullen moon shines bright upon this wet night . The raindrops laugh. And the word,  "alone" ,drops away from my vocabulary.
